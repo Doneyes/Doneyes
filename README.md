@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Doneyes
+- 👀 I’m interested in ...video games, YouTube, and GitHub
+- 🌱 I’m currently learning ...7th grade
+- 💞️ I’m looking to collaborate on ...anything YouTube and video games
+- 📫 How to reach me ...marshallkware@outlook.com (email)
